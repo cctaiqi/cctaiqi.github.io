@@ -1,4 +1,4 @@
-# 爱情是灵魂深处最温柔的共鸣：
+# [爱情是灵魂深处最温柔的共鸣](https://tvmao-site.gitbook.io/tvmao-site-docs/)：
 
 文艺清新风‌
 
